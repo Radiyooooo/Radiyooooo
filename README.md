@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Radiyooooo
+- 👀 I’m interested in : Modding games :)
+- 🌱 I’m currently learning : How to mod games, I'm new to modding and I need help how to use such as 3dmigoto and HSRGameStarter
+- 💞️ I’m looking to collaborate : on nothing really :/
+- 📫 How to reach me : You can reach me through email, though I rarely check my email
